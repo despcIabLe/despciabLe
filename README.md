@@ -1,14 +1,6 @@
 <p align="center">
 </a>
 
- ㅤ  ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ<img src="https://komarev.com/ghpvc/?username=your-github-doctorwilson&label=८˃̣̣̥᷄ᴖ˂̣̣̥᷅꒱ა&style=plastic&color=a1a09f"  /> <p align="center">
-    
- <p align="center">
-</a>
-<img src="https://litter.catbox.moe/xjyz1cbt3vj2k0n8.webp" width="250" height="260%"/>
-   <p align="center">
-" ㅤliving  ㅤㅤ dead  ㅤㅤ girl. ㅤ"
-
    <p align="center">
  Gilbert or Tabbitㅤtheythemㅤ13ㅤC+H is ok! also whispers too ok..ㅤ
      
