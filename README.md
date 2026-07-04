@@ -1,12 +1,5 @@
-<p align="center">
-</a>
+totalbflop on pinterest, I dont use github anymore because I don't play pontoon anymore..:)
 
-   <p align="center">
- Gilbert or Tabbitㅤtheythemㅤ13ㅤC+H is ok! also whispers too ok..ㅤ
-     
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤidc about inspo just dont copy >>:^ㅤusually by presentsㅤmarvel areaㅤspawnㅤ
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤor hetalia area.ㅤalways with my brother or friends , dont be shy!
  <p align="center">
 <p align="center">
 <sub>
